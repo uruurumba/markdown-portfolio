@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+   **karl**  
+  - kartonka  
+  - **i malenkaya**  
+  - sobachenka  
+ ~~tochno ne ponadobitsya~~
