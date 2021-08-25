@@ -1,1 +1,1 @@
-Write out some of your awesome attributes, and use emphasis (like bold or italics) to identify keywords, programming languages, or skills. 
+**Write** out some of your😠 awesome ***asis **(like bold** _or_ **italics)** to __identify__ keywords, _programming_ lan _gu_ ages, or s🚴‍♂️kills. 
